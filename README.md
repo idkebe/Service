@@ -1,1 +1,1 @@
-https://github.com/idkebe/seasonal-squad-promo/blob/main/your-image.pnghttps://imgur.com/a/1sBDy8a
+https://github.com/idkebe/seasonal-squad-promo/blob/main/yohttps://imgur.com/a/1sBDy8a.pnghttps:/
