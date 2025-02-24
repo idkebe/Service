@@ -1,2 +1,1 @@
-# Seasonal Squad Promo  
-![Seasonal Squad](https://github.com/idkebe/seasonal-squad-promo/blob/mainhttps://www.canva.com/design/DAGf_CLmwQ8/zKtshE_8vvUUQALvUuZjkw/view?utm_content=DAGf_CLmwQ8&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h8892b859b3/)
+https://github.com/idkebe/seasonal-squad-promo/blob/main/your-image.pnghttps://imgur.com/a/1sBDy8a
